@@ -55,6 +55,7 @@ run apps
 
 
 
+<img width="1282" alt="Screenshot 2024-02-07 at 11 34 07" src="https://github.com/haikalharin/playstation_list/assets/47345504/97bb823e-5784-4d2b-b0d7-661891ac858c">
 
 
 
